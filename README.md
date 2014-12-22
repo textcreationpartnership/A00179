@@ -33,11 +33,55 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Merie tales of the made men of Gotam gathered to gether by A.B. of phisike doctour.Merry tales of th
+Merie Tales of the mad men of Gotam.Gathered to gether by A. B. of Phiſike Doctour.
 #####Body#####
 
+1. ¶ Here beginneth certain merie tales of the mad men of Gotam.
+
+    _ ¶ The firſt tale.
+
+    _ ¶ The ii. tale.
+
+    _ ¶ The iii. tale.
+
+    _ ¶ The iiii. tale.
+
+    _ ¶ The v. tale.
+
+    _ ¶ The vi tale.
+
+    _ The vii. tale.
+
+    _ The viii. tale.
+
+    _ The ix. tale.
+
+    _ The x. tale.
+
+    _ ¶ The xi. tale.
+
+    _ ¶ The. xii. tale.
+
+    _ ¶ The. xiii. tale.
+
+    _ ¶ The xiiii. tale.
+
+    _ ¶ The xv. tale.
+
+    _ ¶ The xvi. tale.
+
+    _ ¶ The xvii. tale.
+
+    _ The xviii. tale.
+
+    _ ¶ The xix. tale.
+
+    _ The. xx. tale.
+
+    _ ¶ The xxi tale.
+
 #####Back#####
-Merie tales of the made men of Gotam gathered to gether by A.B. of phisike doctour.Merry tales of th
+Imprinted at London in Fletſtret, beneath thf Conduit, at the ſigne of S. John Euangeliſt, by Thomas
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
